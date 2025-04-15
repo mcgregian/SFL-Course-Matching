@@ -1,0 +1,1 @@
+If any course or major isn't how it is supposed to be, email imcgregor@ucsd.edu and I will fix it as soon as possible. Thanks!
